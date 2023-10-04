@@ -1,1 +1,1 @@
-https://chrome-dino-game.github.io
+Not made by me!
